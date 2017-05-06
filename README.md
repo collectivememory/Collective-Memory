@@ -1,0 +1,2 @@
+# Collective-Memory
+Founded by a Vietnamese duo of travel writer and photographer, the concept for Collective Memory emerged from a shared enthusiasm for Vietnamese culture. While constantly on the move for assignments, the creators use these opportunities to scour the country for the best products that Vietnam can offer. The concept brings together authentic and high-quality Vietnamese brands under one roof.
